@@ -42,7 +42,7 @@ With **Chikii MOD APK**, you’ll enjoy **Unlimited Coins**, **VIP Access**, and
 
 ---
 
-![Chikii Game List](https://vpmods.com/wp-content/uploads/2023/11/chikii-gta5-rdr2-mortal-kombat.webp)
+![Chikii Game List](https://vpmods.com/wp-content/uploads/2025/06/hq720.avif)
 
 ---
 
